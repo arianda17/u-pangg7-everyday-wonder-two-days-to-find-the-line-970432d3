@@ -1,0 +1,1 @@
+The fridge light, after the door closes, keeps burning for a moment in the dark, as if something inside is still reading.
